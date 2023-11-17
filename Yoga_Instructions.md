@@ -58,7 +58,7 @@
   * to improve liver energy so that eye will become perfect, since liver and eye connected each other.
   * there is eye exercise which can improve our eye issues
 
- ### Surya Namsakar:
+### Surya Namsakar:
 
   * [others Click Here](https://www.youtube.com/watch?v=v9pm3ME6rIU) 
 
@@ -72,7 +72,7 @@
 
    * [Click Here](https://www.youtube.com/watch?v=hDF22HecqGU) - English Guru 
 
- ### Clean 72000 Nadies With Siddhasana Muthare:
+### Clean 72000 Nadies With Siddhasana Muthare:
 
  * [Click Here](https://www.youtube.com/watch?v=fhP2IY-l1wI) 
 
@@ -127,11 +127,19 @@
 * this is secret in yoga to get uyirhatal and get good health and knowleadge 
 * [Refer Here](https://www.youtube.com/watch?v=_z_CZ6FIQkI)
 
-# Ladies Period Problem:
+### Ladies Period Problem:
 * doing this yoga we will get rid of kalivukal of period time fully out 
 * makes it proper dates on time 
 * [Refer Here](https://www.youtube.com/watch?v=C_YY4xifmUo)
 
-# Stomach tummy/fat to reduce:
+### Stomach tummy/fat to reduce:
 * to get rid of stomach tummy or fatness at specially stomach or meat.
 * [Refer Here](https://www.youtube.com/watch?v=Iodv9gheLt4)
+
+### sines/asthma/throat pain/block/:
+* if we do this yoga can get rid of asthma, sines, throat pain,block or any issues about throat will get get solved
+* [Refer Here](https://www.youtube.com/watch?v=M4RbqMTtb60)
+
+### body/manasu tiredness:
+* by doing this yoga we can get rid of manasu/body/odalu sorvu/triedness 
+* [Refer Here](https://www.youtube.com/watch?v=WVwzgWIPlyI)
