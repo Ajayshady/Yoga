@@ -42,10 +42,12 @@
     * to get good sleep and also all our blood circulation in good condition
     * we can do morning and evening and also before sleep at night it is very important if we do we will get good sleep
 
-### Herania Muthare: 
+### Hernia Muthare and hasana: 
 * [Refer Here](https://www.youtube.com/watch?v=PJxtjN4UopA) 
 * [Refer Here](https://www.youtube.com/watch?v=A3Ajka68jX4)
-  * to get rid of herania issues without surgery 
+* [Refer Here](https://www.youtube.com/watch?v=al_gTHBs938) 
+* [Refer Here](https://www.youtube.com/watch?v=QsCG8P1LzSU)
+* to get rid of hernia issues without surgery 
 
 ### Stone in pithapayi/stomach:
 * [Refer Here](https://www.youtube.com/watch?si=edP59ImNlZSeaMzi&v=eQlPumrw8-M&feature=youtu.be)
