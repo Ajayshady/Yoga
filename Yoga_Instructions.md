@@ -154,3 +154,10 @@
 * [Refer Here](https://www.youtube.com/watch?v=pplOhfde-iM)
 * by doing this yoga we can git rid of eye dryness and also our liver will get good energy since, if our liver has some problem then eye problem will start
 
+### Theeth/Dental:
+* [Refer Here](https://www.youtube.com/watch?v=i10xO9G2AnQ)
+* [Refer Here](https://www.youtube.com/watch?v=O2q9T8_QPw0)
+* doing this yoga our dental will improve and good
+
+
+
