@@ -157,6 +157,7 @@
 ### Theeth/Dental:
 * [Refer Here](https://www.youtube.com/watch?v=i10xO9G2AnQ)
 * [Refer Here](https://www.youtube.com/watch?v=O2q9T8_QPw0)
+* [Refer Here](https://www.youtube.com/watch?v=YQ4jcOSrHVo)
 * doing this yoga our dental will improve and good
 
 
