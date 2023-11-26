@@ -160,5 +160,9 @@
 * [Refer Here](https://www.youtube.com/watch?v=YQ4jcOSrHVo)
 * doing this yoga our dental will improve and good
 
+### uchathaleyile vali/ head centre pain:
+* [Refer Here](https://www.youtube.com/watch?v=Fv0NOGxMn0g)
+
+
 
 
