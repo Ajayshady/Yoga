@@ -164,5 +164,12 @@
 * [Refer Here](https://www.youtube.com/watch?v=Fv0NOGxMn0g)
 
 
+### karupaiy/karumute strengthening for ladies:
+* doing this yoga ladies can strengthening the karupaiy or karumute so that, they will not get baby birth giving issue
+* [Refer Here](https://www.youtube.com/watch?v=LB4jve2zUkw)
+
+### back centre bone pain/weakness or swelling:
+* doing this yoga we can get rid of back centre bone pain/weakness or any kati in that bone 
+* [Refer Here](https://www.youtube.com/watch?v=4U1kB0JnvOg)
 
 
