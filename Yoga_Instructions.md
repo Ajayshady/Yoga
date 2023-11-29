@@ -172,4 +172,8 @@
 * doing this yoga we can get rid of back centre bone pain/weakness or any kati in that bone 
 * [Refer Here](https://www.youtube.com/watch?v=4U1kB0JnvOg)
 
+### Varicose veins:
+* [Refer Here](https://www.youtube.com/watch?v=Zp02J1s0TLk)
+
+
 
