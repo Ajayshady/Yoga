@@ -175,5 +175,6 @@
 ### Varicose veins:
 * [Refer Here](https://www.youtube.com/watch?v=Zp02J1s0TLk)
 
-
+### cough/asthma/sines:
+* [Refer Here](https://www.youtube.com/watch?v=J8d1s7gecnA)
 
