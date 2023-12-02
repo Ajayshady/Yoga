@@ -178,3 +178,10 @@
 ### cough/asthma/sines:
 * [Refer Here](https://www.youtube.com/watch?v=J8d1s7gecnA)
 
+### hip pain or hip cache:
+* [Refer Here](https://www.youtube.com/watch?v=_DAfbXYqOr4)
+
+### Fever
+[Refer Here](https://www.youtube.com/watch?v=JbedHGYd0Js)
+
+
