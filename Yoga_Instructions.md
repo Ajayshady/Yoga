@@ -175,18 +175,20 @@
 ### Varicose veins:
 * [Refer Here](https://www.youtube.com/watch?v=Zp02J1s0TLk)
 
-### cough/asthma/sines:
+### cough/asthma/sines/fever:
 * [Refer Here](https://www.youtube.com/watch?v=J8d1s7gecnA)
+* [Refer Here](https://www.youtube.com/watch?v=d_7v3A6iuAs)
 
 ### hip pain or hip cache:
 * [Refer Here](https://www.youtube.com/watch?v=_DAfbXYqOr4)
 
 ### Fever
-[Refer Here](https://www.youtube.com/watch?v=JbedHGYd0Js)
+* [Refer Here](https://www.youtube.com/watch?v=JbedHGYd0Js)
 
 ### Back bone making strength:
 * by doing this yoga we can strength back bone and increase uyuratral/humunity power so that we will get any kind of fever
 * [Refer Here](https://www.youtube.com/watch?v=VzkUMBZZYE4)
+
 
 
 
