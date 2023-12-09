@@ -184,11 +184,9 @@
 
 ### Fever
 * [Refer Here](https://www.youtube.com/watch?v=JbedHGYd0Js)
+* [Refer Here](https://www.youtube.com/watch?v=uD0H3UHWxos) 
 
 ### Back bone making strength:
 * by doing this yoga we can strength back bone and increase uyuratral/humunity power so that we will get any kind of fever
 * [Refer Here](https://www.youtube.com/watch?v=VzkUMBZZYE4)
-
-
-
 
