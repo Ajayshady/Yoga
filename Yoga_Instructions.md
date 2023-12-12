@@ -194,3 +194,9 @@
 ### Nerves/Padham/leg pain/problem:
 * [Refer Here](https://www.youtube.com/watch?v=AWfq5YXiIi4)
 
+### All kalivukal/dirty to get rid from body
+* by doing this yoga all kalivukal/dirty will go out of body, people will get good starvation, motion will go properly.
+* fever will not come, any virus will not affect, 
+* [Refer Here](https://www.youtube.com/watch?v=zJTCQOoaQV4) 
+
+
