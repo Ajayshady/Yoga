@@ -202,4 +202,16 @@
 ### Stomach pain, digest problem, and irukodal and perikodal sariyagam yekamillai:
 * [Refer Here](https://www.youtube.com/watch?v=LQ4rYnYPFDI) 
 
+### NATURALLY DETOX YOUR BODY - English Guru
+* [Refer Here](https://www.youtube.com/watch?v=9_3MYIyed4Q)
+
+### YOGA FOR MONEY | ONE MUDRA TO ATTRACT MONEY - English Guru
+* [Refer Here](https://www.youtube.com/watch?v=Lf7ujj7a7Ek)
+
+### WHAT IS YOUR DOSHA VATA PITTA KAPHA
+* [Refer Here](https://www.youtube.com/watch?v=vPD1NGMY_8E)
+
+### Digest Faster | Only One Mudra For Fast Digestion 
+* [Refer Here](https://www.youtube.com/watch?v=pGfq0SKqQ0A)
+![Preview](./Images/yoga.png) 
 
