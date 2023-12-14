@@ -199,4 +199,7 @@
 * fever will not come, any virus will not affect, 
 * [Refer Here](https://www.youtube.com/watch?v=zJTCQOoaQV4) 
 
+### Stomach pain, digest problem, and irukodal and perikodal sariyagam yekamillai:
+* [Refer Here](https://www.youtube.com/watch?v=LQ4rYnYPFDI) 
+
 
