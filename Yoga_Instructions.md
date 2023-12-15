@@ -215,3 +215,6 @@
 * [Refer Here](https://www.youtube.com/watch?v=pGfq0SKqQ0A)
 ![Preview](./Images/yoga.png) 
 
+### Nerves pain/weakenss hip bone pain:
+* [Refer Here](https://www.youtube.com/watch?v=9XuX8C4rPjw)
+ 
