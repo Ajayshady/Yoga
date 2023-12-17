@@ -199,7 +199,7 @@
 * fever will not come, any virus will not affect, 
 * [Refer Here](https://www.youtube.com/watch?v=zJTCQOoaQV4) 
 
-### Stomach pain, digest problem, and irukodal and perikodal sariyagam yekamillai:
+### Stomach pain, digest problem, and irukodal and perikodal sariyagam yekamillai
 * [Refer Here](https://www.youtube.com/watch?v=LQ4rYnYPFDI) 
 
 ### NATURALLY DETOX YOUR BODY - English Guru
@@ -208,13 +208,19 @@
 ### YOGA FOR MONEY | ONE MUDRA TO ATTRACT MONEY - English Guru
 * [Refer Here](https://www.youtube.com/watch?v=Lf7ujj7a7Ek)
 
-### WHAT IS YOUR DOSHA VATA PITTA KAPHA
+### WHAT IS YOUR DOSHA VATA PITTA KAPHA-English Guru
 * [Refer Here](https://www.youtube.com/watch?v=vPD1NGMY_8E)
 
-### Digest Faster | Only One Mudra For Fast Digestion 
+### Digest Faster | Only One Mudra For Fast Digestion-English Guru  
 * [Refer Here](https://www.youtube.com/watch?v=pGfq0SKqQ0A)
 ![Preview](./Images/yoga.png) 
 
-### Nerves pain/weakenss hip bone pain:
+### Nerves pain/weakenss hip bone pain
 * [Refer Here](https://www.youtube.com/watch?v=9XuX8C4rPjw)
- 
+
+### weight/diabetes Reducing   
+* [Refer Here](https://www.youtube.com/watch?v=RbcDouYC72Q)
+
+### pitha pai/kaleral and manam makes peace and good
+* [Refer Here](https://www.youtube.com/watch?v=cgXo_pIEO0E)
+
