@@ -53,6 +53,10 @@
 * [Refer Here](https://www.youtube.com/watch?si=edP59ImNlZSeaMzi&v=eQlPumrw8-M&feature=youtu.be)
    * to get rid of all kinds of stones in gladbladar,kindey etc:
 * [Refer Here](https://www.youtube.com/watch?v=HGi8go97hrQ) 
+* pithapayi/sirunirgal stone and get rid of all types of kalivugal from our body
+* for men two balls/veravikam will pain and weakness 
+   * [Refer Here](https://www.youtube.com/watch?v=byE-LhxEjRc) 
+
 
 ### Eye and liver:
 * [Refer Here](https://www.youtube.com/watch?si=tqdL_qKMjQqSMiUs&v=4ZNALhidrKI&feature=youtu.be)
