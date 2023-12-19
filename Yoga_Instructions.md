@@ -70,13 +70,13 @@
 
 ### Constipation:
 
-   * [Click Here](https://www.youtube.com/watch?v=3suURUyxHEA) - Tamil Guru
+   * [Refer Here](https://www.youtube.com/watch?v=3suURUyxHEA) - Tamil Guru
+   * [Refer Here](https://www.youtube.com/watch?v=HnDtpFBVO18) - Tamil Guru
+   * [Refer Here](https://www.youtube.com/watch?v=H2LfUwMshYA) - Tamil Guru - Malachikal
 
-   * [Click Here](https://www.youtube.com/watch?v=HnDtpFBVO18) - Tamil Guru
+   * [Refer Here](https://www.youtube.com/watch?v=BBGURkAnERk) - English Guru
 
-   * [Click Here](https://www.youtube.com/watch?v=BBGURkAnERk) - English Guru
-
-   * [Click Here](https://www.youtube.com/watch?v=hDF22HecqGU) - English Guru 
+   * [Refer Here](https://www.youtube.com/watch?v=hDF22HecqGU) - English Guru 
 
 ### Clean 72000 Nadies With Siddhasana Muthare:
 
