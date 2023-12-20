@@ -228,3 +228,7 @@
 ### pitha pai/kaleral and manam makes peace and good
 * [Refer Here](https://www.youtube.com/watch?v=cgXo_pIEO0E)
 
+### Nose Block/Air inhealing/breathing left and right side
+* [Refer Here](https://www.youtube.com/watch?v=ij7XTf-4YbA)
+
+
