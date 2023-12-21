@@ -231,4 +231,6 @@
 ### Nose Block/Air inhealing/breathing left and right side
 * [Refer Here](https://www.youtube.com/watch?v=ij7XTf-4YbA)
 
+### Left or right lungs/neck/shoulder pain 
+* [Refer Here](https://www.youtube.com/watch?v=P7ll0mygMIo)
 
