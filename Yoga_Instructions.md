@@ -234,3 +234,9 @@
 ### Left or right lungs/neck/shoulder pain 
 * [Refer Here](https://www.youtube.com/watch?v=P7ll0mygMIo)
 
+### Back centre bone strenghting
+* [Refer Here](https://www.youtube.com/watch?v=jY9obr0v25E)
+
+
+
+
