@@ -237,6 +237,12 @@
 ### Back centre bone strenghting
 * [Refer Here](https://www.youtube.com/watch?v=jY9obr0v25E)
 
+### mansu katupadu and 5th sense making to wake up and getting energy and uyiratal 
+* [Refer Here](https://www.youtube.com/watch?v=dyxG3uhMHy0)
+* [Refer Here](https://www.youtube.com/watch?v=l8uaM6ISr6w)
+
+
+
 
 
 
