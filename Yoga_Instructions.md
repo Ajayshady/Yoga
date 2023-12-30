@@ -241,6 +241,14 @@
 * [Refer Here](https://www.youtube.com/watch?v=dyxG3uhMHy0)
 * [Refer Here](https://www.youtube.com/watch?v=l8uaM6ISr6w)
 
+### panja bodagalai katupadu
+* [Refer Here](https://www.youtube.com/watch?v=QisUpXcbulA)
+* [Refer Here](https://www.youtube.com/watch?v=BWIQJc5ojzE)
+
+### At Slep in the midnight some kind of mamoering 
+* to take all negative thoughts from mind 
+* [Refer Here](https://www.youtube.com/watch?v=6YhrUqhGfY8)
+
 
 
 
