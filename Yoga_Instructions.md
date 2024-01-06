@@ -249,6 +249,11 @@
 * to take all negative thoughts from mind 
 * [Refer Here](https://www.youtube.com/watch?v=6YhrUqhGfY8)
 
+### Piles or mulam
+* [Refer Here](https://www.youtube.com/watch?v=xGIG0zM815w)
+
+### for panikalam hand becoming white or vedipu
+* [Refer Here](https://www.youtube.com/watch?v=_63OWrJboPQ)
 
 
 
