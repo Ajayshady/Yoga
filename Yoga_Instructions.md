@@ -255,6 +255,9 @@
 ### for panikalam hand becoming white or vedipu
 * [Refer Here](https://www.youtube.com/watch?v=_63OWrJboPQ)
 
+### yoga for Brain
+* [Refer Here](https://www.youtube.com/watch?v=9pQxc_5aSns)
+
 
 
 
