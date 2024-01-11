@@ -258,6 +258,10 @@
 ### yoga for Brain
 * [Refer Here](https://www.youtube.com/watch?v=9pQxc_5aSns)
 
+### eye and liver problem
+* if liver is good then eye problem will not come 
+* [Refer Here](https://www.youtube.com/watch?v=Z63lQ5JUkrk)
+
 
 
 
