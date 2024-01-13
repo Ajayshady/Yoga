@@ -262,6 +262,14 @@
 * if liver is good then eye problem will not come 
 * [Refer Here](https://www.youtube.com/watch?v=Z63lQ5JUkrk)
 
+### Nose Block/inhale
+* [Refer Here](https://www.youtube.com/watch?v=inbxik_OkMw)
+
+
+### Mouth/tonque/lips 
+* all these above should be in good condition with good taste observing and should not get wound
+* [Refer Here](https://www.youtube.com/watch?v=4ZYnmcs0m20)
+
 
 
 
