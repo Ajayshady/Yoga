@@ -271,6 +271,9 @@
 * [Refer Here](https://www.youtube.com/watch?v=4ZYnmcs0m20)
 
 
+### Ear Problems
+* [Refer Here](https://www.youtube.com/watch?v=Vu2a1YAwGTs)
+
 
 
 
