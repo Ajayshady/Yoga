@@ -274,6 +274,12 @@
 ### Ear Problems
 * [Refer Here](https://www.youtube.com/watch?v=Vu2a1YAwGTs)
 
+### tholpati and full hand pain 
+* [Refer Here](https://www.youtube.com/watch?v=XYB9FZqHbqs)
+
+### Heart/Volve problem
+* [Refer Here](https://www.youtube.com/watch?v=VYXILT-8lqA)
+
 
 
 
