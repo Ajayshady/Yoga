@@ -281,5 +281,9 @@
 * [Refer Here](https://www.youtube.com/watch?v=VYXILT-8lqA)
 
 
+### sirukodal/perukodal/jeeranamandal 
+* [Refer Here](https://www.youtube.com/watch?v=T5MYKIgUcn8)
 
+### siruniragam/siruniragam pai 
+* [Refer Here](https://www.youtube.com/watch?v=hTloFqt6Hc8)
 
