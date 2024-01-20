@@ -287,3 +287,6 @@
 ### siruniragam/siruniragam pai 
 * [Refer Here](https://www.youtube.com/watch?v=hTloFqt6Hc8)
 
+### hip pain/thaimanam, thuthikalvali buring pain 
+* [Refer Here](https://www.youtube.com/watch?v=nNR7dczyyy4)
+
