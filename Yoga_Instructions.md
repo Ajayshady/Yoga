@@ -290,3 +290,5 @@
 ### hip pain/thaimanam, thuthikalvali buring pain 
 * [Refer Here](https://www.youtube.com/watch?v=nNR7dczyyy4)
 
+### Tyroid/paratyroid, throat pain
+* [Refer Here](https://www.youtube.com/watch?v=tp4Je5Eekrc)
