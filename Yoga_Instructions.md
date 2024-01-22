@@ -292,3 +292,7 @@
 
 ### Tyroid/paratyroid, throat pain
 * [Refer Here](https://www.youtube.com/watch?v=tp4Je5Eekrc)
+
+### Postive Thoughts
+* [Refer Here](https://www.youtube.com/watch?v=LiIXsEWP0aY)
+
