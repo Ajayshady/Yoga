@@ -296,3 +296,9 @@
 ### Postive Thoughts
 * [Refer Here](https://www.youtube.com/watch?v=LiIXsEWP0aY)
 
+### Nerves Weakenss, kalpadha vikam/vali, left/right lungs  
+* [Refer Here](https://www.youtube.com/watch?v=HEGNUxkKkEQ)
+* [Refer Here](https://www.youtube.com/watch?v=xKQa0oafzAc)
+
+
+
