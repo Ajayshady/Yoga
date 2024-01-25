@@ -277,9 +277,9 @@
 ### tholpati and full hand pain 
 * [Refer Here](https://www.youtube.com/watch?v=XYB9FZqHbqs)
 
-### Heart/Volve problem
+### Heart/Volve problem, heart beats, thope reducing 
 * [Refer Here](https://www.youtube.com/watch?v=VYXILT-8lqA)
-
+* [Refer Here](https://www.youtube.com/watch?v=qaynoTSofQs)
 
 ### sirukodal/perukodal/jeeranamandal 
 * [Refer Here](https://www.youtube.com/watch?v=T5MYKIgUcn8)
@@ -299,6 +299,10 @@
 ### Nerves Weakenss, kalpadha vikam/vali, left/right lungs  
 * [Refer Here](https://www.youtube.com/watch?v=HEGNUxkKkEQ)
 * [Refer Here](https://www.youtube.com/watch?v=xKQa0oafzAc)
+
+
+
+
 
 
 
