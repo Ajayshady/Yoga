@@ -72,6 +72,7 @@
 
    * [Refer Here](https://www.youtube.com/watch?v=3suURUyxHEA) - Tamil Guru
    * [Refer Here](https://www.youtube.com/watch?v=HnDtpFBVO18) - Tamil Guru
+   * [Refer Here](https://www.youtube.com/watch?v=5gMya8u70no) - Tamil Guru
    * [Refer Here](https://www.youtube.com/watch?v=H2LfUwMshYA) - Tamil Guru - Malachikal
 
    * [Refer Here](https://www.youtube.com/watch?v=BBGURkAnERk) - English Guru
@@ -299,6 +300,7 @@
 ### Nerves Weakenss, kalpadha vikam/vali, left/right lungs  
 * [Refer Here](https://www.youtube.com/watch?v=HEGNUxkKkEQ)
 * [Refer Here](https://www.youtube.com/watch?v=xKQa0oafzAc)
+
 
 
 
