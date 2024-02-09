@@ -301,6 +301,12 @@
 * [Refer Here](https://www.youtube.com/watch?v=HEGNUxkKkEQ)
 * [Refer Here](https://www.youtube.com/watch?v=xKQa0oafzAc)
 
+### Vodam/body vushnam balancing 
+* [Refer Here](https://www.youtube.com/watch?v=hsvJ97TTAsU)
+
+### Ear Problem
+* [Refer Here](https://www.youtube.com/watch?v=_7AZjJ3TPIs)
+
 
 
 
