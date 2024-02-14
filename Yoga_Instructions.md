@@ -307,6 +307,16 @@
 ### Ear Problem
 * [Refer Here](https://www.youtube.com/watch?v=_7AZjJ3TPIs)
 
+### Norai eeral
+* [Refer Here](https://www.youtube.com/watch?v=sOZyih_JhxM)
+
+### back bone/mudugu thandu 
+* [Refer Here](https://www.youtube.com/watch?v=H24TCFYsAr0)
+
+### Scared Problem 
+* [Refer Here](https://www.youtube.com/watch?v=tE77Piy1ItQ)
+
+
 
 
 
