@@ -321,6 +321,8 @@
 * because of this anger we will get any kind of pressure
 * [Refer Here](https://www.youtube.com/watch?v=pdPCrl0tp7A)
 
+### Ulcer/ manidan panbu
+* [Refer Here](https://www.youtube.com/watch?v=Zc5PsjQsUDI)
 
 
 
