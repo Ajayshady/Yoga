@@ -324,6 +324,11 @@
 ### Ulcer/ manidan panbu
 * [Refer Here](https://www.youtube.com/watch?v=Zc5PsjQsUDI)
 
+### To Stop Perasai
+* [Refer Here](https://www.youtube.com/watch?v=alORzkfpE4o)
+
+### Over expectation and anxiety 
+* [Refer Here](https://www.youtube.com/watch?v=lXE7GEVrFy4)
 
 
 
