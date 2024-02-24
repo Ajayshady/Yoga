@@ -330,6 +330,25 @@
 ### Over expectation and anxiety 
 * [Refer Here](https://www.youtube.com/watch?v=lXE7GEVrFy4)
 
+### about sleep and food routine
+* [Refer Here](https://www.youtube.com/watch?v=1JXNu2B3Ous)
+
+
+### hedumarai enagal human can live for 120 years
+* [Refer Here](https://www.youtube.com/watch?v=Af79C-Rkw0s)
+
+### negative thoughts thalvu manampadu/postive though should keep to get than nambike
+* [Refer Here](https://www.youtube.com/watch?v=99dYs0W9tQQ)
+
+
+### manam alatham and nerves problem
+* [Refer Here](https://www.youtube.com/watch?v=wi7zLmxby6A)
+
+### heart/norai eral
+* [Refer Here](https://www.youtube.com/watch?v=346kv68wVZ0)
+
+### expectation, cheating, vudal sooravu, manam sooravu, anxiety 
+* [Refer Here](https://www.youtube.com/watch?v=lXE7GEVrFy4)
 
 
 
