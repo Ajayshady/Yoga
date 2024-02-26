@@ -350,6 +350,8 @@
 ### expectation, cheating, vudal sooravu, manam sooravu, anxiety 
 * [Refer Here](https://www.youtube.com/watch?v=lXE7GEVrFy4)
 
+### Prana atral/hotam/shakthi for body 
+* [Refer Here](https://www.youtube.com/watch?v=bH3gKmdvID8)
 
 
 
