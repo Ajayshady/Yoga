@@ -353,6 +353,13 @@
 ### Prana atral/hotam/shakthi for body 
 * [Refer Here](https://www.youtube.com/watch?v=bH3gKmdvID8)
 
+### digestive problem
+* [Refer Here](https://www.youtube.com/watch?v=u9H5_tPVhCk)
+
+### norai eeral making good, manam nimadi, manam alatham
+* [Refer Here](https://www.youtube.com/watch?v=Bag90LQN1EQ)
+
+
 
 
 
