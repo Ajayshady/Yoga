@@ -359,6 +359,9 @@
 ### norai eeral making good, manam nimadi, manam alatham
 * [Refer Here](https://www.youtube.com/watch?v=Bag90LQN1EQ)
 
+### blood circulation for 72000 nadi nerubugal 
+* [Refer Here](https://www.youtube.com/watch?v=raSfCIkiwbc)
+
 
 
 
