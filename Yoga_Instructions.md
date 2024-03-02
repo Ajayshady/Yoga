@@ -362,6 +362,10 @@
 ### blood circulation for 72000 nadi nerubugal 
 * [Refer Here](https://www.youtube.com/watch?v=raSfCIkiwbc)
 
+### sugar problem and pancereas making it proper
+* [Refer Here](https://www.youtube.com/watch?v=_-3yo4hh0i8)
+
+
 
 
 
