@@ -365,6 +365,10 @@
 ### sugar problem and pancereas making it proper
 * [Refer Here](https://www.youtube.com/watch?v=_-3yo4hh0i8)
 
+### Heat attack, volve to keep stunt, bypase in heart
+* [Refer Here](https://www.youtube.com/watch?v=dfYrE23SqgI)
+
+
 
 
 
