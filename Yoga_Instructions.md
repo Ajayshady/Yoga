@@ -371,10 +371,43 @@
 ### Worries will spoil our inner organs, arivil malarchi, to get nyanam 
 * [Refer Here](https://www.youtube.com/watch?v=p1yapFVcfRQ)
 
+### All parts should be good in our body and uyiratal for men and women and panjabodangal should be good
+* [Refer Here](https://www.youtube.com/watch?v=ET08LU_I0W4)
 
+### all panjabodagal with compare to our body parts inside the stomach to all this panjabodangal in good condition 
+* [Refer Here](https://www.youtube.com/watch?v=60dELgxwOJ8)
 
+### specially for girls very important even after pregancy normal delivery 
+* [Refer Here](https://www.youtube.com/watch?v=7VFlVduMBJ8)
 
+### muchi pairchi and om kar mantram
+* [Refer Here](https://www.youtube.com/watch?v=p16gsrieutE)
 
+### continues urine to avoid that sirnirangam and sirinirgam payi
+* [Refer Here](https://www.youtube.com/watch?v=frPXT4vjts4)
 
+### vericose vein and thudikalvali
+* [Refer Here](https://www.youtube.com/watch?v=Ysyw_dqqwfM)
 
+### knee pain, thudikalvali 
+* [Refer Here](https://www.youtube.com/watch?v=3mA6T0QbN_k)
+
+### manakolapam, manovali, manohotam manamalatham to get rid of positive energy
+* [Refer Here](https://www.youtube.com/watch?v=bvH4sZ5ob2U)
+
+###  hani kal 
+* [Refer Here](https://www.youtube.com/watch?v=Q3isq12iQPM)
+
+###  dry eyes or eye problems 
+* avoid phone and sleep properly if not our liver will get week then we will get eye problem
+* [Refer Here](https://www.youtube.com/watch?v=sQ_WQVn0jdo)
+
+### Left/right hand pain 
+* [Refer Here](https://www.youtube.com/watch?v=56hSEAJmsuo)
+
+### breathing problem on under nenji kile unable to breath
+* [Refer Here](https://www.youtube.com/watch?v=e4vv7Ikdg9o)
+
+### neck nerves pain and gidiness 
+* [Refer Here](https://www.youtube.com/watch?v=A-B5isp0JBI)
 
