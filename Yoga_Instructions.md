@@ -411,3 +411,5 @@
 ### neck nerves pain and gidiness 
 * [Refer Here](https://www.youtube.com/watch?v=A-B5isp0JBI)
 
+### vitamin should proper, any less in vitamin, then we will get problem 
+* [Refer Here](https://www.youtube.com/watch?v=95RGSmpJrYs)
