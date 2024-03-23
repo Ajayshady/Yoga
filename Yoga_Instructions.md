@@ -413,3 +413,7 @@
 
 ### vitamin should proper, any less in vitamin, then we will get problem 
 * [Refer Here](https://www.youtube.com/watch?v=95RGSmpJrYs)
+
+### nalameyilam sorapi marbadhu 
+* [Refer Here](https://www.youtube.com/watch?v=RY-eg_FrkMY)
+
