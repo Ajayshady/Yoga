@@ -420,4 +420,8 @@
 ### udal/manasu valarchi or maturity 
 * [Refer Here](https://www.youtube.com/watch?v=aRpsc95Xrz0)
 
+### Atrinal sorapi
+* [Refer Here](https://www.youtube.com/watch?v=NK9LiLng2Qg)
+
+
 
