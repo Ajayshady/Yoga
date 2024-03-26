@@ -423,5 +423,9 @@
 ### Atrinal sorapi
 * [Refer Here](https://www.youtube.com/watch?v=NK9LiLng2Qg)
 
+### padam week, padam herachal, padam vali
+* [Refer Here](https://www.youtube.com/watch?v=mIzNhGwzXwM)
+
+
 
 
