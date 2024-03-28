@@ -427,5 +427,10 @@
 * [Refer Here](https://www.youtube.com/watch?v=mIzNhGwzXwM)
 
 
+### Knee Pain and knee taimanam 
+* [Refer Here](https://www.youtube.com/watch?v=v2Dw7fwCZPA)
+
+
+
 
 
