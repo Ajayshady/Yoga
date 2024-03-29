@@ -431,6 +431,10 @@
 * [Refer Here](https://www.youtube.com/watch?v=v2Dw7fwCZPA)
 
 
+### stroke or from head to leg pain 
+* [Refer Here](https://www.youtube.com/watch?v=xiEewEFvjig)
+
+
 
 
 
