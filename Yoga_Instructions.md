@@ -434,7 +434,9 @@
 ### stroke or from head to leg pain 
 * [Refer Here](https://www.youtube.com/watch?v=xiEewEFvjig)
 
+###  All type of piles complaint 
+* [Refer Here](https://www.youtube.com/watch?v=siXxqZa2dbo)
 
-
-
+### more sweating and lungs should work properly 
+* [Refer Here](https://www.youtube.com/watch?v=nh4LXnl9qKo)
 
