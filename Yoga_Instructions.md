@@ -440,3 +440,9 @@
 ### more sweating and lungs should work properly 
 * [Refer Here](https://www.youtube.com/watch?v=nh4LXnl9qKo)
 
+### stomach pain due to ushnam and also herina/kodal herakoam 
+* [Refer Here](https://www.youtube.com/watch?v=zU0dCpm2EpA)
+
+### maintaining the ushnam noramalization 
+* [Refer Here](https://www.youtube.com/watch?v=AmhE4Z9WHu0)
+
