@@ -56,6 +56,7 @@
 * pithapayi/sirunirgal stone and get rid of all types of kalivugal from our body
 * for men two balls/veravikam will pain and weakness 
    * [Refer Here](https://www.youtube.com/watch?v=byE-LhxEjRc) 
+* [Refer Here](https://www.youtube.com/watch?v=weleKnUAMw8)   
 
 
 ### Eye and liver:
@@ -91,6 +92,7 @@
 ### Heart Beat Reduce or maintain Normalization: 
 * [Refer Here](https://www.youtube.com/watch?v=QurR2o2FHF8)
   * for some people heart beat will beat more in this case we can do this yoga to maintain or normalization in heart beat 
+* [Refer Here](https://www.youtube.com/watch?v=pWxt824gqTo)  
 
 ### Blood cancer:
 * [Refer Here](https://www.youtube.com/watch?si=tiEsAHelMxgGCJpf&v=6ywBRkTJ6QM&feature=youtu.be)
@@ -445,4 +447,90 @@
 
 ### maintaining the ushnam noramalization 
 * [Refer Here](https://www.youtube.com/watch?v=AmhE4Z9WHu0)
+
+### Continues cough
+* [Refer Here](https://www.youtube.com/watch?v=4Om9EaPVpzI)
+
+### Elephant leg problem and all leg problem 
+* [Refer Here](https://www.youtube.com/watch?v=2fhUXgKgWfs)
+
+### about gents and ladies problem 
+* [Refer Here](https://www.youtube.com/watch?v=kdTbVjl_BUE)
+
+### tension stress negative thought, prana/uriatral shakthi  
+* [Refer Here](https://www.youtube.com/watch?v=VeP1btiFaVM)
+* [Refer Here](https://www.youtube.com/watch?v=NjU4ctcf8y8)
+
+### memory loss 
+* [Refer Here](https://www.youtube.com/watch?v=3PjIVqjgwg0)
+
+### to keep 5 raja urupugal in normal/good condition 
+* This is very important yoga because if we do this one all our raja urupal like, heart, norai eral, siru neeragam, siru neeragam pai, siru kodal, peru kodal, kal eral, maan eral, will give stregnth. 
+* [Refer Here](https://www.youtube.com/watch?v=yUNkrxBbRaM)
+
+
+### sofacation problem, asthma, sinus, one side head ache, kafa 
+* [Refer Here](https://www.youtube.com/watch?v=6X7ZnFJbrqQ)
+
+### skin alergy, kolapu kati 
+* [Refer Here](https://www.youtube.com/watch?v=o7LEes2EWTY)
+
+
+### stomach katti/ cancer 
+* [Refer Here](https://www.youtube.com/watch?v=EbBJWql3Ht0)
+
+### ulcer/arania 
+* [Refer Here](https://www.youtube.com/watch?v=6eHjLMo67l4)
+
+### Black Magic problem
+* [Refer Here](https://www.youtube.com/watch?v=3MUuDcRW6gc)
+
+### dasai vayikal and angry should be normal 
+* [Refer Here](https://www.youtube.com/watch?v=xxdPB8rkXI4)
+
+###  thopai / panceraes 
+* [Refer Here](https://www.youtube.com/watch?v=QBll7yNGyqE)
+
+
+### blood flow or bllod circulation 
+* [Refer Here](https://www.youtube.com/watch?v=9waIpUKkl8c)
+
+### Immunity power increase, it will push all kalivukal from our body and HIV problem 
+* [Refer Here](https://www.youtube.com/watch?v=bw9iEinBII4)
+
+### chicken box important watch
+* [Refer Here](https://www.youtube.com/watch?v=LGmcGEUsQNU)
+
+### karupaiyil katigal and irregular periods 
+* [Refer Here](https://www.youtube.com/watch?v=B2rhE6Vggeo)
+
+### private parts itching 
+* [Refer Here](https://www.youtube.com/watch?v=EK5mmzRbo3Y)
+
+### Joint pain
+* [Refer Here](https://www.youtube.com/watch?v=s4Sf8mXs0E0)
+
+### uyirshakthi, vindu shakthi will pass while doing urine nor motion, to avoid this.
+* [Refer Here](https://www.youtube.com/watch?v=xmMDG6lWp7Q)
+
+### Skin allergy
+* [Refer Here](https://www.youtube.com/watch?v=oniwM_MxTq4)
+
+### Eye problem
+* [Refer Here](https://www.youtube.com/watch?v=KW23wGtHObg)
+* [Refer Here](https://www.youtube.com/watch?v=bhHDqtirApY)
+
+### narumu mandalkul katigal
+* [Refer Here](https://www.youtube.com/watch?v=lx2nVaYiWrI)
+
+### vepam pakavadam
+* [Refer Here](https://www.youtube.com/watch?v=absqr9kM6gA)
+
+### gents private parts skin peeling 
+* [Refer Here](https://www.youtube.com/watch?v=SiAUOZevUFc)
+
+
+
+
+
 
