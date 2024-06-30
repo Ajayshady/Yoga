@@ -515,6 +515,9 @@
 
 ### Skin allergy
 * [Refer Here](https://www.youtube.com/watch?v=oniwM_MxTq4)
+* [Refer Here](https://www.youtube.com/watch?v=9KX4W7woSXw)
+* [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
+* [Refer Here](https://www.youtube.com/watch?v=sDNbYSpsTAo)
 
 ### Eye problem
 * [Refer Here](https://www.youtube.com/watch?v=KW23wGtHObg)
@@ -528,6 +531,13 @@
 
 ### gents private parts skin peeling 
 * [Refer Here](https://www.youtube.com/watch?v=SiAUOZevUFc)
+
+### Vericose vein
+* [Refer Here](https://www.youtube.com/watch?v=yvzlYFVym3Y)
+
+
+### Dandruff
+* [Refer Here](https://www.youtube.com/watch?v=dHJrBh-LqZo)
 
 
 
