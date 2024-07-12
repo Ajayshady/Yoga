@@ -539,6 +539,10 @@
 ### Dandruff
 * [Refer Here](https://www.youtube.com/watch?v=dHJrBh-LqZo)
 
+### sinus, asthama, kafa problem and main is norai erral/kidney make it strenght 
+* [Refer Here](https://www.youtube.com/watch?v=n33YwWyV9Rg)
+
+
 
 
 
