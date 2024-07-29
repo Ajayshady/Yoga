@@ -546,6 +546,10 @@
 ### to get rid of all kalivukal from stomach and to make proper of vadam if not lots of problem , also even we get storke too. 
 * [Refer Here](https://www.youtube.com/watch?v=j-HVABX3yf0)
 
+### Kolupu katti
+* [Refer Here](https://www.youtube.com/watch?v=OS5GDAGeUXk)
+
+
 
 
 
