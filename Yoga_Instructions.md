@@ -553,6 +553,7 @@
 ### Itching problem
 * [Refer Here](https://www.youtube.com/watch?v=Ts8K_B1nJ4k)
 
-
+### simples on face
+* [Refer Here](https://www.youtube.com/watch?v=a9AQP1lKfSU)
 
 
