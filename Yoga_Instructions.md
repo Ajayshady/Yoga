@@ -556,4 +556,30 @@
 ### simples on face
 * [Refer Here](https://www.youtube.com/watch?v=a9AQP1lKfSU)
 
+### Hair Fall
+* [Refer Here](https://www.youtube.com/watch?v=w8ooPmI6aWU)
+* [Refer Here](https://www.youtube.com/watch?v=CoBxGL76klQ)
 
+### head pain or gidness 
+* [Refer Here](https://www.youtube.com/watch?v=bNLBwjDnIAc)
+
+### Asthma sinus breathing or nose block problem
+* [Refer Here](https://www.youtube.com/watch?v=LVoACq-InoI)
+
+### young age stay for ever
+* [Refer Here](https://www.youtube.com/watch?v=WQHKFyJwHZw)
+
+### after pregenant ladies stomach will remain big 
+* [Refer Here](https://www.youtube.com/watch?v=US24Ai5YLIQ)
+
+### Arms meat is more or kai daseikal should be normal 
+* [Refer Here](https://www.youtube.com/watch?v=JrdWoWD3ftc)
+
+### stomach fatnesss or tumy reduce 
+* [Refer Here](https://www.youtube.com/watch?v=QyAwYRUN_0g)
+
+### eayer would or katikal in eayer 
+* [Refer Here](https://www.youtube.com/watch?v=165CL-cL-9w)
+
+### in body no where katikal should come to get ride of katikal or in eye katikal to reduce
+* [Refer Here](https://www.youtube.com/watch?v=f-UHFhIc4fI)
