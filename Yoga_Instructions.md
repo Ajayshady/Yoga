@@ -583,3 +583,9 @@
 
 ### in body no where katikal should come to get ride of katikal or in eye katikal to reduce
 * [Refer Here](https://www.youtube.com/watch?v=f-UHFhIc4fI)
+
+### verocoise vien 
+* [Refer Here](https://www.youtube.com/watch?v=G61bqBPwKb4)
+
+### thonde vull pagadhikal katigal problem 
+* [Refer Here](https://www.youtube.com/watch?v=ekji8CoayLI)
