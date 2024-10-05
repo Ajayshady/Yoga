@@ -61,6 +61,7 @@
 
 ### Eye and liver:
 * [Refer Here](https://www.youtube.com/watch?si=tqdL_qKMjQqSMiUs&v=4ZNALhidrKI&feature=youtu.be)
+* [Refer Here](https://www.youtube.com/watch?v=aGo5rsfDFd0)
   * to get rid of all kinds of eyes problems and to remove speces 
   * to improve liver energy so that eye will become perfect, since liver and eye connected each other.
   * there is eye exercise which can improve our eye issues
@@ -474,6 +475,10 @@
 
 ### skin alergy, kolapu kati 
 * [Refer Here](https://www.youtube.com/watch?v=o7LEes2EWTY)
+* [Refer Here](https://www.youtube.com/watch?v=9KX4W7woSXw)
+* [Refer Here](https://www.youtube.com/watch?v=sDNbYSpsTAo)
+* [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
+
 
 
 ### stomach katti/ cancer 
@@ -522,6 +527,7 @@
 ### Eye problem
 * [Refer Here](https://www.youtube.com/watch?v=KW23wGtHObg)
 * [Refer Here](https://www.youtube.com/watch?v=bhHDqtirApY)
+* [Refer Here](https://www.youtube.com/watch?v=3cOcZfzNGSU)
 
 ### narumu mandalkul katigal
 * [Refer Here](https://www.youtube.com/watch?v=lx2nVaYiWrI)
@@ -566,8 +572,11 @@
 ### Asthma sinus breathing or nose block problem
 * [Refer Here](https://www.youtube.com/watch?v=LVoACq-InoI)
 
-### young age stay for ever
+### face glow, fairness young age stay for ever, look young always
 * [Refer Here](https://www.youtube.com/watch?v=WQHKFyJwHZw)
+* [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
+* [Refer Here](https://www.youtube.com/watch?v=911hQrnH1b8)
+* [Refer Here](https://www.youtube.com/watch?v=OYWQj751nrQ)
 
 ### after pregenant ladies stomach will remain big 
 * [Refer Here](https://www.youtube.com/watch?v=US24Ai5YLIQ)
@@ -589,3 +598,21 @@
 
 ### thonde vull pagadhikal katigal problem 
 * [Refer Here](https://www.youtube.com/watch?v=ekji8CoayLI)
+
+### Headche problem
+* [Refer Here](https://www.youtube.com/watch?v=UIDKNGab20I)
+* [Refer Here](https://www.youtube.com/watch?v=RT-3R6IuYhk)
+* [Refer Here](https://www.youtube.com/watch?v=bNLBwjDnIAc&t=144s)
+* [Refer Here](https://www.youtube.com/watch?v=JioYAp8I0cM)
+
+### gidyness or mykom
+* [Refer Here](https://www.youtube.com/watch?v=00mxoSmzC-Y)
+* [Refer Here](https://www.youtube.com/watch?v=cU0sNsobk4A) 
+
+### head back side above hear pain back headche problem
+* [Refer Here](https://www.youtube.com/watch?v=xor7tAfY6wI)
+
+### pressure in head or headche
+* [Refer Here](https://www.youtube.com/watch?v=tnBsBNKSH2M)
+
+
