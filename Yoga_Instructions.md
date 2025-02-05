@@ -616,4 +616,8 @@
 ### pressure in head or headche
 * [Refer Here](https://www.youtube.com/watch?v=tnBsBNKSH2M)
 
+### After the fever still we have body pain and tied 
+  * in this there is linga muthere so watch it
+* [Refer Here](https://www.youtube.com/watch?v=1bKRWEHs98E) 
+
 
