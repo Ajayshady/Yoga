@@ -620,4 +620,5 @@
   * in this there is linga muthere so watch it
 * [Refer Here](https://www.youtube.com/watch?v=1bKRWEHs98E) 
 
-
+### Danruff and wound in head
+* [Refer Here](https://www.youtube.com/watch?v=tOM-5QqtyO4) 
