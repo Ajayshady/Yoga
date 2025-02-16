@@ -621,4 +621,7 @@
 * [Refer Here](https://www.youtube.com/watch?v=1bKRWEHs98E) 
 
 ### Danruff and wound in head
-* [Refer Here](https://www.youtube.com/watch?v=tOM-5QqtyO4) 
+* [Refer Here](https://www.youtube.com/watch?v=tOM-5QqtyO4)
+
+### Tale/head routating leg nerves weekenss
+* [Refer Here](https://www.youtube.com/watch?v=S11tik80nqk)
