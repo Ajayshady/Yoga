@@ -90,6 +90,7 @@
 * doing this yoga we can maintain our body and reduce our weight as per our hieght and age
 * get good digest and make grind or work of good and bad digest system with our foods and divide the bad and good shakthi of food and good make it blood and send it for heart and bad make it and send it out of stomach
 * [Refer Here](https://www.youtube.com/watch?v=LwrV6GaeR_0) 
+* [Refer Here](https://www.youtube.com/watch?v=Kobk6zsEf38)
 
 ### Heart Beat Reduce or maintain Normalization: 
 * [Refer Here](https://www.youtube.com/watch?v=QurR2o2FHF8)
