@@ -597,6 +597,7 @@
 
 ### verocoise vien 
 * [Refer Here](https://www.youtube.com/watch?v=G61bqBPwKb4)
+* [Refer Here](https://www.youtube.com/watch?v=OdPKsuauR6o)
 
 ### thonde vull pagadhikal katigal problem 
 * [Refer Here](https://www.youtube.com/watch?v=ekji8CoayLI)
@@ -617,4 +618,15 @@
 ### pressure in head or headche
 * [Refer Here](https://www.youtube.com/watch?v=tnBsBNKSH2M)
 
+### After the fever still we have body pain and tied 
+  * in this there is linga muthere so watch it
+* [Refer Here](https://www.youtube.com/watch?v=1bKRWEHs98E) 
 
+### Danruff and wound in head
+* [Refer Here](https://www.youtube.com/watch?v=tOM-5QqtyO4)
+
+### Tale/head routating leg nerves weekenss
+* [Refer Here](https://www.youtube.com/watch?v=S11tik80nqk)
+
+### kidney function and piles problem get rid of it
+* [Refer Here](https://www.youtube.com/watch?v=EIrLBfq8tO8) 
