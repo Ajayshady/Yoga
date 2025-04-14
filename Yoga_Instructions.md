@@ -65,6 +65,7 @@
   * to get rid of all kinds of eyes problems and to remove speces 
   * to improve liver energy so that eye will become perfect, since liver and eye connected each other.
   * there is eye exercise which can improve our eye issues
+* [Refer Here](https://www.youtube.com/watch?v=dUZkaOpb95I)  
 
 ### Surya Namsakar:
 
