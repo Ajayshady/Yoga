@@ -580,6 +580,7 @@
 * [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
 * [Refer Here](https://www.youtube.com/watch?v=911hQrnH1b8)
 * [Refer Here](https://www.youtube.com/watch?v=OYWQj751nrQ)
+* [Refer Here](https://www.youtube.com/watch?v=vsgUBZa12nQ) 
 
 ### after pregenant ladies stomach will remain big 
 * [Refer Here](https://www.youtube.com/watch?v=US24Ai5YLIQ)
@@ -631,3 +632,25 @@
 
 ### kidney function and piles problem get rid of it
 * [Refer Here](https://www.youtube.com/watch?v=EIrLBfq8tO8) 
+
+### Liver problem and eye problem
+* [Refer Here](https://www.youtube.com/watch?v=cSTdyxEAyg0&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=23) -> this is little about eye yoga 
+* [Refer Here](https://www.youtube.com/watch?v=DELqwAn7zbs)
+* [Refer Here](https://www.youtube.com/watch?v=EtZPr4UtaVY)
+
+
+### All Videos in One PlayList
+* [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=37)
+
+
+### Important Expalined about Panja Pudhangal and Diabetics
+* [Refer Here](https://www.youtube.com/watch?v=vKrrwLIAWWg)
+
+
+### Panjapudangal yoga for all problem Important 
+* [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=39)
+
+
+### Diabetics problem 
+* [Refer Here](https://www.youtube.com/watch?v=A0qQpMNDuZw)
+
