@@ -635,22 +635,24 @@
 
 ### Liver problem and eye problem
 * [Refer Here](https://www.youtube.com/watch?v=cSTdyxEAyg0&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=23) -> this is little about eye yoga 
-* [Refer Here](https://www.youtube.com/watch?v=DELqwAn7zbs)
-* [Refer Here](https://www.youtube.com/watch?v=EtZPr4UtaVY)
-
+* [Refer Here](https://www.youtube.com/watch?v=DELqwAn7zbs) `>` this is about liver yoga it is good if we practice this even we wil get rid of drinks too.
+* [Refer Here](https://www.youtube.com/watch?v=EtZPr4UtaVY) `>` this is also good yoga for liver and eye 
 
 ### All Videos in One PlayList
 * [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=37)
 
-
-### Important Expalined about Panja Pudhangal and Diabetics
+### Important Expalined about Panja Pudhangal and Diabetics problem 
 * [Refer Here](https://www.youtube.com/watch?v=vKrrwLIAWWg)
 
-
 ### Panjapudangal yoga for all problem Important 
+* it works for all organs in body like `>` spleen, heart, liver, kidney, lungs, heart valves
 * [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=39)
 
-
 ### Diabetics problem 
-* [Refer Here](https://www.youtube.com/watch?v=A0qQpMNDuZw)
+* [Refer Here](https://www.youtube.com/watch?v=ZAdl5UPWLP) `->` in this only one mudere and and yogahassana so compare to other sugar video not good but in this video i saw yoga teacher number so i am saving it. 
+* [Refer Here](https://www.youtube.com/watch?v=6VHjdGTL1rE&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=28) `>` this video mudere and hassana with chair it is good 
+* [Refer Here](https://www.youtube.com/watch?v=VESKWgvtGVE) `>` this is also good its sitting position and vajrahasanam postion, mudere and hassanam 
+* [Refer Here](https://www.youtube.com/watch?v=XXOMdh6m94U) `>` this is also good mudere and hassanam with sittiing position 
 
+### Digestive problem 
+* [Refer Here](https://www.youtube.com/watch?v=Sl4HxsSgpL4&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=4) 
