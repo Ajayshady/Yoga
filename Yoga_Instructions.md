@@ -656,3 +656,19 @@
 
 ### Digestive problem 
 * [Refer Here](https://www.youtube.com/watch?v=Sl4HxsSgpL4&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=4) 
+
+
+### Enhancing Male Vitality/ hanmai koravu
+* [Refer Here](https://www.youtube.com/watch?v=szEXLbygeFw)
+
+### Weight loss problem
+* [Refer Here](https://www.youtube.com/watch?v=fa2sbPEbWS8)
+
+### Hair fall and Hair growth
+* [Refer Here](https://www.youtube.com/watch?v=YgKZrm5TNL8)
+
+### Eye problem 
+* [Refer Here](https://www.youtube.com/watch?v=Mbr7pCQd-Hc)
+
+### to control three important vadham, pitham and kabham
+* [Refer Here](https://www.youtube.com/watch?v=PYt2H3jpJ3o)
