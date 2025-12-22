@@ -3,12 +3,6 @@
 * doing these yoga's we will get rid of all health issues/problems
 * doing these all mudarai should put mat down then sit on that and practice
 
-### Linga mudarai: 
-
-  * [others Click Here](https://www.youtube.com/watch?v=DQaBs-TMxyk)
-  
-    *  we can get rid of motion, kafa, urine, menses, asthama, sines and vushnam, it will make hot to our body
-    * it will solve girls period problem too
 
 ### Chin Mudarai:
 
@@ -22,10 +16,12 @@
     * blood pressure
     * blood flow will be good 
 
-### Adhi Mudarai:
+### Adhi Mudarai and Linga mudarai 
 
   * [others Click Here](https://www.youtube.com/watch?v=DQaBs-TMxyk)
-
+    
+    *  we can get rid of motion, kafa, urine, menses, asthama, sines and vushnam, it will make hot to our body
+    * it will solve girls period problem too
     * we can get humanity power to fight with dieseas
     * manasu padatam, decision making 
     * vuyurotam will be good 
@@ -58,15 +54,6 @@
    * [Refer Here](https://www.youtube.com/watch?v=byE-LhxEjRc) 
 * [Refer Here](https://www.youtube.com/watch?v=weleKnUAMw8)   
 
-
-### Eye and liver:
-* [Refer Here](https://www.youtube.com/watch?si=tqdL_qKMjQqSMiUs&v=4ZNALhidrKI&feature=youtu.be)
-* [Refer Here](https://www.youtube.com/watch?v=aGo5rsfDFd0)
-  * to get rid of all kinds of eyes problems and to remove speces 
-  * to improve liver energy so that eye will become perfect, since liver and eye connected each other.
-  * there is eye exercise which can improve our eye issues
-* [Refer Here](https://www.youtube.com/watch?v=dUZkaOpb95I)  
-
 ### Surya Namsakar:
 
   * [others Click Here](https://www.youtube.com/watch?v=v9pm3ME6rIU) 
@@ -87,11 +74,19 @@
 
  * [Click Here](https://www.youtube.com/watch?v=fhP2IY-l1wI) 
 
-### Slim/fat, spline and Digest Yoga:
+### Slim/fat, spline and Digest Yoga, stomach fatnesss or tumy reduce: 
 * doing this yoga we can maintain our body and reduce our weight as per our hieght and age
 * get good digest and make grind or work of good and bad digest system with our foods and divide the bad and good shakthi of food and good make it blood and send it for heart and bad make it and send it out of stomach
 * [Refer Here](https://www.youtube.com/watch?v=LwrV6GaeR_0) 
 * [Refer Here](https://www.youtube.com/watch?v=Kobk6zsEf38)
+* [Refer Here](https://www.youtube.com/watch?v=Iodv9gheLt4)
+* to get rid of stomach tummy or fatness at specially stomach or meat.
+* [Refer Here](https://www.youtube.com/watch?v=QyAwYRUN_0g)
+* [Refer Here](https://www.youtube.com/watch?v=RbcDouYC72Q)
+* Weight loss 
+* [Refer Here](https://www.youtube.com/watch?v=fa2sbPEbWS8)
+8 [Refer Here](https://www.youtube.com/watch?v=9TxXCj53lXs)
+
 
 ### Heart Beat Reduce or maintain Normalization: 
 * [Refer Here](https://www.youtube.com/watch?v=QurR2o2FHF8)
@@ -145,10 +140,6 @@
 * makes it proper dates on time 
 * [Refer Here](https://www.youtube.com/watch?v=C_YY4xifmUo)
 
-### Stomach tummy/fat to reduce:
-* to get rid of stomach tummy or fatness at specially stomach or meat.
-* [Refer Here](https://www.youtube.com/watch?v=Iodv9gheLt4)
-
 ### sines/asthma/throat pain/block/:
 * if we do this yoga can get rid of asthma, sines, throat pain,block or any issues about throat will get get solved
 * [Refer Here](https://www.youtube.com/watch?v=M4RbqMTtb60)
@@ -161,14 +152,11 @@
 * making ushna normal and controlling neeru mole and urine normal while paasing burinung sensation
 * [Refer Here](https://www.youtube.com/watch?v=VeFRKfxvThI)
 
-### Eye getting dryness
-* [Refer Here](https://www.youtube.com/watch?v=pplOhfde-iM)
-* by doing this yoga we can git rid of eye dryness and also our liver will get good energy since, if our liver has some problem then eye problem will start
-
 ### Theeth/Dental:
 * [Refer Here](https://www.youtube.com/watch?v=i10xO9G2AnQ)
 * [Refer Here](https://www.youtube.com/watch?v=O2q9T8_QPw0)
 * [Refer Here](https://www.youtube.com/watch?v=YQ4jcOSrHVo)
+* [Refer Here](https://www.youtube.com/watch?v=MQ7gZI7T9LI) `=>` this is important i followed this one 
 * doing this yoga our dental will improve and good
 
 ### uchathaleyile vali/ head centre pain:
@@ -229,9 +217,6 @@
 ### Nerves pain/weakenss hip bone pain
 * [Refer Here](https://www.youtube.com/watch?v=9XuX8C4rPjw)
 
-### weight/diabetes Reducing   
-* [Refer Here](https://www.youtube.com/watch?v=RbcDouYC72Q)
-
 ### pitha pai/kaleral and manam makes peace and good
 * [Refer Here](https://www.youtube.com/watch?v=cgXo_pIEO0E)
 
@@ -264,10 +249,6 @@
 
 ### yoga for Brain
 * [Refer Here](https://www.youtube.com/watch?v=9pQxc_5aSns)
-
-### eye and liver problem
-* if liver is good then eye problem will not come 
-* [Refer Here](https://www.youtube.com/watch?v=Z63lQ5JUkrk)
 
 ### Nose Block/inhale
 * [Refer Here](https://www.youtube.com/watch?v=inbxik_OkMw)
@@ -380,9 +361,6 @@
 ### All parts should be good in our body and uyiratal for men and women and panjabodangal should be good
 * [Refer Here](https://www.youtube.com/watch?v=ET08LU_I0W4)
 
-### all panjabodagal with compare to our body parts inside the stomach to all this panjabodangal in good condition 
-* [Refer Here](https://www.youtube.com/watch?v=60dELgxwOJ8)
-
 ### specially for girls very important even after pregancy normal delivery 
 * [Refer Here](https://www.youtube.com/watch?v=7VFlVduMBJ8)
 
@@ -392,9 +370,6 @@
 ### continues urine to avoid that sirnirangam and sirinirgam payi
 * [Refer Here](https://www.youtube.com/watch?v=frPXT4vjts4)
 
-### vericose vein and thudikalvali
-* [Refer Here](https://www.youtube.com/watch?v=Ysyw_dqqwfM)
-
 ### knee pain, thudikalvali 
 * [Refer Here](https://www.youtube.com/watch?v=3mA6T0QbN_k)
 
@@ -403,10 +378,6 @@
 
 ###  hani kal 
 * [Refer Here](https://www.youtube.com/watch?v=Q3isq12iQPM)
-
-###  dry eyes or eye problems 
-* avoid phone and sleep properly if not our liver will get week then we will get eye problem
-* [Refer Here](https://www.youtube.com/watch?v=sQ_WQVn0jdo)
 
 ### Left/right hand pain 
 * [Refer Here](https://www.youtube.com/watch?v=56hSEAJmsuo)
@@ -468,21 +439,8 @@
 ### memory loss 
 * [Refer Here](https://www.youtube.com/watch?v=3PjIVqjgwg0)
 
-### to keep 5 raja urupugal in normal/good condition 
-* This is very important yoga because if we do this one all our raja urupal like, heart, norai eral, siru neeragam, siru neeragam pai, siru kodal, peru kodal, kal eral, maan eral, will give stregnth. 
-* [Refer Here](https://www.youtube.com/watch?v=yUNkrxBbRaM)
-
-
 ### sofacation problem, asthma, sinus, one side head ache, kafa 
 * [Refer Here](https://www.youtube.com/watch?v=6X7ZnFJbrqQ)
-
-### skin alergy, kolapu kati 
-* [Refer Here](https://www.youtube.com/watch?v=o7LEes2EWTY)
-* [Refer Here](https://www.youtube.com/watch?v=9KX4W7woSXw)
-* [Refer Here](https://www.youtube.com/watch?v=sDNbYSpsTAo)
-* [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
-
-
 
 ### stomach katti/ cancer 
 * [Refer Here](https://www.youtube.com/watch?v=EbBJWql3Ht0)
@@ -526,11 +484,7 @@
 * [Refer Here](https://www.youtube.com/watch?v=9KX4W7woSXw)
 * [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
 * [Refer Here](https://www.youtube.com/watch?v=sDNbYSpsTAo)
-
-### Eye problem
-* [Refer Here](https://www.youtube.com/watch?v=KW23wGtHObg)
-* [Refer Here](https://www.youtube.com/watch?v=bhHDqtirApY)
-* [Refer Here](https://www.youtube.com/watch?v=3cOcZfzNGSU)
+* [Refer Here](https://www.youtube.com/watch?v=o7LEes2EWTY)
 
 ### narumu mandalkul katigal
 * [Refer Here](https://www.youtube.com/watch?v=lx2nVaYiWrI)
@@ -540,10 +494,6 @@
 
 ### gents private parts skin peeling 
 * [Refer Here](https://www.youtube.com/watch?v=SiAUOZevUFc)
-
-### Vericose vein
-* [Refer Here](https://www.youtube.com/watch?v=yvzlYFVym3Y)
-
 
 ### Dandruff
 * [Refer Here](https://www.youtube.com/watch?v=dHJrBh-LqZo)
@@ -558,29 +508,15 @@
 ### Kolupu katti
 * [Refer Here](https://www.youtube.com/watch?v=OS5GDAGeUXk)
 
-
-### Itching problem
-* [Refer Here](https://www.youtube.com/watch?v=Ts8K_B1nJ4k)
-
 ### simples on face
 * [Refer Here](https://www.youtube.com/watch?v=a9AQP1lKfSU)
-
-### Hair Fall
-* [Refer Here](https://www.youtube.com/watch?v=w8ooPmI6aWU)
-* [Refer Here](https://www.youtube.com/watch?v=CoBxGL76klQ)
-
-### head pain or gidness 
-* [Refer Here](https://www.youtube.com/watch?v=bNLBwjDnIAc)
 
 ### Asthma sinus breathing or nose block problem
 * [Refer Here](https://www.youtube.com/watch?v=LVoACq-InoI)
 
 ### face glow, fairness young age stay for ever, look young always
 * [Refer Here](https://www.youtube.com/watch?v=WQHKFyJwHZw)
-* [Refer Here](https://www.youtube.com/watch?v=1-2Ru7K3RRw)
 * [Refer Here](https://www.youtube.com/watch?v=911hQrnH1b8)
-* [Refer Here](https://www.youtube.com/watch?v=OYWQj751nrQ)
-* [Refer Here](https://www.youtube.com/watch?v=vsgUBZa12nQ) 
 
 ### after pregenant ladies stomach will remain big 
 * [Refer Here](https://www.youtube.com/watch?v=US24Ai5YLIQ)
@@ -588,27 +524,28 @@
 ### Arms meat is more or kai daseikal should be normal 
 * [Refer Here](https://www.youtube.com/watch?v=JrdWoWD3ftc)
 
-### stomach fatnesss or tumy reduce 
-* [Refer Here](https://www.youtube.com/watch?v=QyAwYRUN_0g)
-
 ### eayer would or katikal in eayer 
 * [Refer Here](https://www.youtube.com/watch?v=165CL-cL-9w)
 
 ### in body no where katikal should come to get ride of katikal or in eye katikal to reduce
 * [Refer Here](https://www.youtube.com/watch?v=f-UHFhIc4fI)
 
-### verocoise vien 
+### vericose vien 
 * [Refer Here](https://www.youtube.com/watch?v=G61bqBPwKb4)
 * [Refer Here](https://www.youtube.com/watch?v=OdPKsuauR6o)
+* [Refer Here](https://www.youtube.com/watch?v=Ysyw_dqqwfM)
+* [Refer Here](https://www.youtube.com/watch?v=yvzlYFVym3Y)
+* [Refer Here](https://www.youtube.com/watch?v=J63Pt42oAo4) 
 
 ### thonde vull pagadhikal katigal problem 
 * [Refer Here](https://www.youtube.com/watch?v=ekji8CoayLI)
 
-### Headche problem
+### Headche or gidness  problem
 * [Refer Here](https://www.youtube.com/watch?v=UIDKNGab20I)
 * [Refer Here](https://www.youtube.com/watch?v=RT-3R6IuYhk)
 * [Refer Here](https://www.youtube.com/watch?v=bNLBwjDnIAc&t=144s)
 * [Refer Here](https://www.youtube.com/watch?v=JioYAp8I0cM)
+* [Refer Here](https://www.youtube.com/watch?v=bNLBwjDnIAc)
 
 ### gidyness or mykom
 * [Refer Here](https://www.youtube.com/watch?v=00mxoSmzC-Y)
@@ -634,9 +571,27 @@
 * [Refer Here](https://www.youtube.com/watch?v=EIrLBfq8tO8) 
 
 ### Liver problem and eye problem
-* [Refer Here](https://www.youtube.com/watch?v=cSTdyxEAyg0&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=23) -> this is little about eye yoga 
+* [Refer Here](https://www.youtube.com/watch?v=cSTdyxEAyg0&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=23) `>` this is little about eye yoga 
 * [Refer Here](https://www.youtube.com/watch?v=DELqwAn7zbs) `>` this is about liver yoga it is good if we practice this even we wil get rid of drinks too.
 * [Refer Here](https://www.youtube.com/watch?v=EtZPr4UtaVY) `>` this is also good yoga for liver and eye 
+* [Refer Here](https://www.youtube.com/watch?si=tqdL_qKMjQqSMiUs&v=4ZNALhidrKI&feature=youtu.be)
+* [Refer Here](https://www.youtube.com/watch?v=aGo5rsfDFd0)
+  * to get rid of all kinds of eyes problems and to remove speces 
+  * to improve liver energy so that eye will become perfect, since liver and eye connected each other.
+  * there is eye exercise which can improve our eye issues
+* [Refer Here](https://www.youtube.com/watch?v=dUZkaOpb95I) 
+* [Refer Here](https://www.youtube.com/watch?v=KW23wGtHObg)
+* [Refer Here](https://www.youtube.com/watch?v=bhHDqtirApY)
+
+* Eye problem 
+* [Refer Here](https://www.youtube.com/watch?v=Mbr7pCQd-Hc)
+
+* Eye getting dryness
+* [Refer Here](https://www.youtube.com/watch?v=pplOhfde-iM)
+* by doing this yoga we can git rid of eye dryness and also our liver will get good energy since, if our liver has some problem then eye problem will start
+* [Refer Here](https://www.youtube.com/watch?v=sQ_WQVn0jdo)
+* avoid phone and sleep properly if not our liver will get week then we will get eye problem
+
 
 ### All Videos in One PlayList
 * [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=37)
@@ -648,8 +603,23 @@
 * it works for all organs in body like `>` spleen, heart, liver, kidney, lungs, heart valves
 * [Refer Here](https://www.youtube.com/watch?v=rdzNxnbBpls&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=39)
 
+* to keep 5 raja urupugal in normal/good condition 
+* This is very important yoga because if we do this one all our raja urupal like, heart, norai eral, siru neeragam, siru neeragam pai, siru kodal, peru kodal, kal eral, maan eral, will give stregnth. 
+* [Refer Here](https://www.youtube.com/watch?v=yUNkrxBbRaM)
+
+* In panjabodgal muthare which is for which one and what is related to our body explained cleanly in below video
+* [Refer Here](https://www.youtube.com/watch?v=60dELgxwOJ8)
+* nilam mulagam muthare/pritivi muthare `>` which gives manu erral/spline energy
+* neer mulagam muthare/ varna muthare `>` which gives sirineeragam, sirineeragampai, kodal pangadi, all water kinds of parts in body will get energy
+* nerapu mulagam/suniaya muthare `>` heart, heart volve, sirukodal will get energy
+* katru mulagam/vayu muthare `>` norai erral, dasavayugal, perunkodal will get energy
+* ahgayam mulagam/ahgayam muthare `>` puthapai, kadu narumgal, heart, pitruthi, pinal gland will get energy
+* this below videos is also important explained very good how planets/panjabodhangal is related to our body parts 
+* [Refer Here](* [Refer Here](https://www.youtube.com/watch?v=vKrrwLIAWWg))
+
+
 ### Diabetics problem 
-* [Refer Here](https://www.youtube.com/watch?v=ZAdl5UPWLP) `->` in this only one mudere and and yogahassana so compare to other sugar video not good but in this video i saw yoga teacher number so i am saving it. 
+* [Refer Here](https://www.youtube.com/watch?v=ZAdl5UPWLP) `>` in this only one mudere and and yogahassana so compare to other sugar video not good but in this video i saw yoga teacher number so i am saving it. 
 * [Refer Here](https://www.youtube.com/watch?v=6VHjdGTL1rE&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=28) `>` this video mudere and hassana with chair it is good 
 * [Refer Here](https://www.youtube.com/watch?v=VESKWgvtGVE) `>` this is also good its sitting position and vajrahasanam postion, mudere and hassanam 
 * [Refer Here](https://www.youtube.com/watch?v=XXOMdh6m94U) `>` this is also good mudere and hassanam with sittiing position 
@@ -657,18 +627,17 @@
 ### Digestive problem 
 * [Refer Here](https://www.youtube.com/watch?v=Sl4HxsSgpL4&list=PLyO9JQRxQxEgLnuhZxih_ClDi8NNPqCXo&index=4) 
 
-
 ### Enhancing Male Vitality/ hanmai koravu
 * [Refer Here](https://www.youtube.com/watch?v=szEXLbygeFw)
 
-### Weight loss problem
-* [Refer Here](https://www.youtube.com/watch?v=fa2sbPEbWS8)
-
 ### Hair fall and Hair growth
 * [Refer Here](https://www.youtube.com/watch?v=YgKZrm5TNL8)
-
-### Eye problem 
-* [Refer Here](https://www.youtube.com/watch?v=Mbr7pCQd-Hc)
+* [Refer Here](https://www.youtube.com/watch?v=w8ooPmI6aWU)
+* [Refer Here](https://www.youtube.com/watch?v=CoBxGL76klQ)
+* [Refer Here](https://www.youtube.com/watch?v=4CBLbHEgqzo)
 
 ### to control three important vadham, pitham and kabham
 * [Refer Here](https://www.youtube.com/watch?v=PYt2H3jpJ3o)
+
+### About puthra bhagyam means for men and for girls hanmai and penmai korivu it will improve 
+* [Refer Here](https://www.youtube.com/watch?v=a4TMn9WBzbU)
