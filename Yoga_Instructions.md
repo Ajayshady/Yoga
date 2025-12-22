@@ -33,10 +33,12 @@
 
 ### Prana and Prakiyal Muthare:
 
-  * [others Click Here](https://www.youtube.com/watch?v=Z7rg4PLZKMA)
-
-    * to get good sleep and also all our blood circulation in good condition
-    * we can do morning and evening and also before sleep at night it is very important if we do we will get good sleep
+* [others Click Here](https://www.youtube.com/watch?v=Z7rg4PLZKMA)
+  * to get good sleep and also all our blood circulation in good condition
+  * we can do morning and evening and also before sleep at night it is very important if we do we will get good sleep
+* For good sleep muthare
+  * [Refer Here](https://www.youtube.com/watch?v=kXwISGIiSUk)  
+  * [Refer Here](https://www.youtube.com/watch?v=HZCqtEPzx78) 
 
 ### Hernia Muthare and hasana: 
 * [Refer Here](https://www.youtube.com/watch?v=PJxtjN4UopA) 
@@ -316,10 +318,6 @@
 
 ### Over expectation and anxiety 
 * [Refer Here](https://www.youtube.com/watch?v=lXE7GEVrFy4)
-
-### about sleep and food routine
-* [Refer Here](https://www.youtube.com/watch?v=1JXNu2B3Ous)
-
 
 ### hedumarai enagal human can live for 120 years
 * [Refer Here](https://www.youtube.com/watch?v=Af79C-Rkw0s)
