@@ -615,6 +615,8 @@
 * ahgayam mulagam/ahgayam muthare `>` puthapai, kadu narumgal, heart, pitruthi, pinal gland will get energy
 * this below videos is also important explained very good how planets/panjabodhangal is related to our body parts 
 * [Refer Here](* [Refer Here](https://www.youtube.com/watch?v=vKrrwLIAWWg))
+* Panjapudangal Explained By Yoga Guru
+* [Refer Here](https://www.youtube.com/watch?v=ZDacjJ3QEKM)
 
 
 ### Diabetics problem 
