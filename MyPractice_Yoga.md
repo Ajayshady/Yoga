@@ -14,4 +14,4 @@ These Yoga's Where I am Practicing Every Day
 
 ### Harina Problem 
 * [Refer Here](https://www.youtube.com/watch?v=A3Ajka68jX4)
-* udra,madhangi and prana muthare and navasan 
+* udra,madhangi and prana muthare and navasanam  
