@@ -76,11 +76,25 @@ this is very important for weight loss
   * prithivi muthare,varna muthare,sunaya muthare, vayu muthare, akhayam muthare and nadi suthi  
 ---
 
+
 Yoga's Mudra's and Hassanam
 ---------------------------
-* these yoga's mudra's and hassanam i have to do every day with out fail which i picked all these below from above link.
+* these yoga's mudra's and hassanam i have to do every day with out fail which i picked all these from above link.
 
-## Compulsary Mudras and Hassanam's
+
+### These below Mudra's and Hassanam's for all the problem but mainly i am doing it for below issues
+* Harina Problem
+* eye and liver
+* Gas trouble and consitipation problem
+* Stomach tummy/fat/ weight to reduce
+* verocoise vein
+* dental
+* skin alergy
+* hair fall
+* fairness age glow
+
+
+## Compulsary Mudras 
 * linga muthare 
 * Adhi muthare 
 * Chin muthare 
@@ -100,7 +114,7 @@ Yoga's Mudra's and Hassanam
 * Khabam pranayama pairchi 
 * `>` To control this three things in our body very important
 
-### Hasanams
+### Compulsary Hasanam's
 * Navasana `>` harina 
 * Yoga mudra hassana with eye excersie `>` Liver, Eye and Skin Allergy
 * Point pressure for liver and eye `>` liver 
