@@ -100,7 +100,9 @@ Yoga's Mudra's and Hassanam
 * Chin muthare 
 * Prana muthare
 * Abhna muthare `>`gas and consitipation and liver and eye 
-* Abhana vayu muthare `>` gas and consitipation
+* suhana Mudra `>` verocoise vein and gas consitipation
+* Rudra Mudra `>` Harina 
+* Suchi Mudra `>` gas and consitipation 
 ### PanjaBodhagakal Mudra's
 * Prithivi muthare
 * Varna muthare
