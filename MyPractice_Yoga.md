@@ -93,8 +93,7 @@ Yoga's Mudra's and Hassanam
 * hair fall
 * fairness age glow
 
-
-## Compulsary Mudras 
+## Yoga Mudra's
 * linga muthare 
 * Adhi muthare 
 * Chin muthare 
@@ -103,6 +102,9 @@ Yoga's Mudra's and Hassanam
 * suhana Mudra `>` verocoise vein and gas consitipation
 * Rudra Mudra `>` Harina 
 * Suchi Mudra `>` gas and consitipation 
+* Point pressure for - liver and eye 
+* pressing nail exercise and sadanda pairuchi - dental issue
+* Scratching nails - hair fall hair growth and hair stop 
 ### PanjaBodhagakal Mudra's
 * Prithivi muthare
 * Varna muthare
@@ -116,14 +118,22 @@ Yoga's Mudra's and Hassanam
 * Khabam pranayama pairchi 
 * `>` To control this three things in our body very important
 
-### Compulsary Hasanam's
+### Bandangal
+* Jalandram Bandam
+* Otiyanam Bandam
+* Mulam Bandam
+
+### Naadi Sudhi
+> follow sir video
+
+### Yoga Hasanam's
 * Navasana `>` harina 
-* Yoga mudra hassana with eye excersie `>` Liver, Eye and Skin Allergy
-* Point pressure for liver and eye `>` liver 
+* Yoga mudra hassana with eye excersie `>` Liver, Eye and Skin Allergy 
 * Vayu niskahasanam `>` gas and consitipation
 * Uthidapadma hasanam and bhujang hassanam `>` gas consitipation 
 * Pavana muth, pachimada and padhe hasta hasanam `>` Stomach tummy/fat/ weight
 * Hartha hala hassanam `>` verocoise vein
-* Pressing nail exercise and sadanda pairuchi `>` Dental Issue
 * Dhanuru hassanam `>` skin alergy
-12 Scratching nails `>` hair fall hair growth and hair stop 
+
+### Chakra Dhyanam
+> follow sir video 

@@ -642,3 +642,6 @@
 
 ### About puthra bhagyam means for men and for girls hanmai and penmai korivu it will improve 
 * [Refer Here](https://www.youtube.com/watch?v=a4TMn9WBzbU)
+
+### Chakra Dhyanam Mediatation
+* [Refer Here](https://www.youtube.com/watch?v=POCdaMsqf4c) 
