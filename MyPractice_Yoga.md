@@ -76,6 +76,27 @@ this is very important for weight loss
   * prithivi muthare,varna muthare,sunaya muthare, vayu muthare, akhayam muthare and nadi suthi  
 ---
 
+### Yoga Prayer
+Tamil yoga prayer (Guru Vandanam):
+==============================
+Om Guru Vazhiye Aadhi Aadhi
+Om Guru Mozhiye Vedham Vedham
+Om Guru Valiye Deepam Deepam
+Om Guru Padhame Kaappo Kaappo
+
+Shiva–Yoga–Patañjali Gayatri:
+=========================
+Om Shiva Tattvāya Vidmahe
+Yogādhārāya Dhīmahi
+Tanno Patañjali Guru Prachodayāt
+
+Vallalar's Arutperum Jyothi:
+======================
+Arutperum Jyothi
+Arutperum Jyothi
+Thaniperum Karunai
+Arutperum Jyothi
+
 
 Yoga's Mudra's and Hassanam
 ---------------------------
@@ -112,7 +133,11 @@ Yoga's Mudra's and Hassanam
 * Vayu muthare
 * Akhayam muthare and mugil muthare 
 * `>` It will solve all problems in our body 
-### Panjabhodhangal Katupadu
+
+### Naadi Sudhi
+> follow sir video
+
+### 3 Types of Breathing Exercise (Panjabhodhangal Katupadu)
 * Vatham pranayama pairchi
 * Pitham pranayama pairchi
 * Khabam pranayama pairchi 
@@ -122,9 +147,6 @@ Yoga's Mudra's and Hassanam
 * Jalandram Bandam
 * Otiyanam Bandam
 * Mulam Bandam
-
-### Naadi Sudhi
-> follow sir video
 
 ### Yoga Hasanam's
 * Navasana `>` harina 
