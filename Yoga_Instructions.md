@@ -36,9 +36,18 @@
 * [others Click Here](https://www.youtube.com/watch?v=Z7rg4PLZKMA)
   * to get good sleep and also all our blood circulation in good condition
   * we can do morning and evening and also before sleep at night it is very important if we do we will get good sleep
-* For good sleep muthare
+* For good sleep mudra's
   * [Refer Here](https://www.youtube.com/watch?v=kXwISGIiSUk)  
   * [Refer Here](https://www.youtube.com/watch?v=HZCqtEPzx78) 
+  * Prana mudras
+  * varna mudras
+  * prithvi mudras
+  * Brahamari mudras
+  * mugil mudras
+  * nidre mudras
+  * gobure mudras
+  * Vayu mudras  
+
 
 ### Hernia Muthare and hasana: 
 * [Refer Here](https://www.youtube.com/watch?v=PJxtjN4UopA) 
