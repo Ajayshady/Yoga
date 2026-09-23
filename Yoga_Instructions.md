@@ -85,6 +85,10 @@
 
  * [Click Here](https://www.youtube.com/watch?v=fhP2IY-l1wI) 
 
+### How to do padmasana 
+* [Refer Here](https://www.youtube.com/watch?v=XezKZWPmTzU)
+* [Refer Here](https://www.youtube.com/watch?v=mCzyn-vmJbY) 
+
 ### Slim/fat, spline and Digest Yoga, stomach fatnesss or tumy reduce: 
 * doing this yoga we can maintain our body and reduce our weight as per our hieght and age
 * get good digest and make grind or work of good and bad digest system with our foods and divide the bad and good shakthi of food and good make it blood and send it for heart and bad make it and send it out of stomach
@@ -521,10 +525,16 @@
 ### Asthma sinus breathing or nose block problem
 * [Refer Here](https://www.youtube.com/watch?v=LVoACq-InoI)
 
-### face glow, fairness young age stay for ever, look young always
+### face glow, fairness young age stay for ever, look young always, skin wrinkles 
 * [Refer Here](https://www.youtube.com/watch?v=WQHKFyJwHZw)
 * [Refer Here](https://www.youtube.com/watch?v=911hQrnH1b8)
 * [Refer Here](https://www.youtube.com/watch?v=9SUEq5fykcE) 
+* [Refer Here](https://www.youtube.com/watch?v=hDlNrHS2NjA&t=191s)
+* [Refer Here](https://www.youtube.com/watch?v=9qC2Nmu0RfM) 
+* [Refer Here](https://www.youtube.com/watch?v=kn-RrYhcV5Q)
+* [Refer Here](https://www.youtube.com/watch?v=9SUEq5fykcE&t=194s)
+
+
 
 ### after pregenant ladies stomach will remain big 
 * [Refer Here](https://www.youtube.com/watch?v=US24Ai5YLIQ)

@@ -61,11 +61,15 @@ this is very important for weight loss
 * [Refer Here](https://www.youtube.com/watch?v=YgKZrm5TNL8)
   * prasana muthare, very important, linga muthare, scratching nails
 
-### fairness age glow
+### fairness age glow and age wrinkles 
 * [Refer Here](https://www.youtube.com/watch?v=WQHKFyJwHZw)
   * Pachidhama hassana, sasang hassanam
 * [Refer Here](https://www.youtube.com/watch?v=911hQrnH1b8)
   * unarchi muthare, varna muthare, dyanam muthare, chin muthare muchi pairachi
+* [Refer Here](https://www.youtube.com/watch?v=hDlNrHS2NjA&t=191s)
+  * hege hala hassanam, akhayam muthare, mugil muthare, adhi muthare. 
+* [Refer Here](https://www.youtube.com/watch?v=kn-RrYhcV5Q)
+  * Padme Gone Uje Hi hassanam. 
 
 ### vatham pitham khabam pranayama pairchi
 * [Refer Here](https://www.youtube.com/watch?v=PYt2H3jpJ3o)
@@ -112,14 +116,17 @@ Yoga's Mudra's and Hassanam
 * dental
 * skin alergy
 * hair fall
-* fairness age glow
+* fairness age glow and age wrinkles
 
 ## Yoga Mudra's
+* Suhasa niele or dynam muthare 
 * linga muthare 
 * Adhi muthare 
 * Chin muthare 
 * Prana muthare
+* Surya muthare 
 * Abhna muthare `>`gas and consitipation and liver and eye 
+* Irudyam or Abhna vayu muthare `>` for heart and gas and consitipation 
 * suhana Mudra `>` verocoise vein and gas consitipation
 * Rudra Mudra `>` Harina 
 * Suchi Mudra `>` gas and consitipation 
@@ -156,6 +163,8 @@ Yoga's Mudra's and Hassanam
 * Pavana muth, pachimada and padhe hasta hasanam `>` Stomach tummy/fat/ weight
 * Hartha hala hassanam `>` verocoise vein
 * Dhanuru hassanam `>` skin alergy
+* Padme Gone Uje Hi hassanam `>` fairness age glow and age wrinkles 
+* hege hala hassanam `>` fairness age glow and age wrinkles 
 
 ### Chakra Dhyanam
 > follow sir video 
