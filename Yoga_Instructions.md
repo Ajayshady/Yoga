@@ -662,4 +662,4 @@
 * [Refer Here](https://www.youtube.com/watch?v=a4TMn9WBzbU)
 
 ### Chakra Dhyanam Mediatation
-* [Refer Here](https://www.youtube.com/watch?v=POCdaMsqf4c) 
+* [Refer Here](https://www.youtube.com/watch?v=POCdaMsqf4c)                                                                        

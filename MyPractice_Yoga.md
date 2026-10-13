@@ -39,7 +39,7 @@ this is very important for weight loss
 
 ### varicose vein  
 * [Refer Here](https://www.youtube.com/watch?v=J63Pt42oAo4)
-  * anjali, suhana, ganesha muthere, hartha hala hassanam, narumbhu parichi
+  * anjali, suhana, ganesha muthere, haiga hartha hala hassanam, narumbhu parichi
 
 ### Dental Yoga
 * [Refer Here](https://www.youtube.com/watch?v=MQ7gZI7T9LI)
@@ -130,6 +130,7 @@ Yoga's Mudra's and Hassanam
 * suhana Mudra `>` verocoise vein and gas consitipation
 * Rudra Mudra `>` Harina 
 * Suchi Mudra `>` gas and consitipation 
+* Padme Gone Uje Hi hassanam `>` fairness age glow and age wrinkles 
 * Point pressure for - liver and eye 
 * pressing nail exercise and sadanda pairuchi - dental issue
 * Scratching nails - hair fall hair growth and hair stop 
@@ -161,9 +162,8 @@ Yoga's Mudra's and Hassanam
 * Vayu niskahasanam `>` gas and consitipation
 * Uthidapadma hasanam and bhujang hassanam `>` gas consitipation 
 * Pavana muth, pachimada and padhe hasta hasanam `>` Stomach tummy/fat/ weight
-* Hartha hala hassanam `>` verocoise vein
+* Haiga Hartha hala hassanam and narumbhu parichi `>` verocoise vein
 * Dhanuru hassanam `>` skin alergy
-* Padme Gone Uje Hi hassanam `>` fairness age glow and age wrinkles 
 * hege hala hassanam `>` fairness age glow and age wrinkles 
 
 ### Chakra Dhyanam
